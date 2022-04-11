@@ -36,4 +36,4 @@ Georgia
 &nbsp;
 #### English
 ***
-Level: C1 (Advanced) I studied at school with advanced english classes, after that I got level-placed at the university. I practice a lot daily by reading and watching content in english. Aslo I was English speaking guide in JSC Corporation Kindzmarauli.
+Level: C1 (Advanced) I studied at school with advanced english classes, after that I got level-placed at the university. I practice a lot daily by reading and watching content in english. Aslo I was English speaking guide in JSC Corporation Kindzmarauli, Kvareli.
