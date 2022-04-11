@@ -4,6 +4,7 @@
 ***
 - Phone Number: +995 595 58 85 25
 - Email: ketonioradze@gmail.com
+- Discord: K_26
 - Telegram: @Keto.Nioradze
 - Github: ketto888
 &nbsp;
